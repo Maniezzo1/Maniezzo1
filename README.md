@@ -1,4 +1,10 @@
-## Hi there!
+## for freelance work? do reach eduardomaniezzooo@gmail.com
+
+🚧 my todoist stats:
+
+🏆 1111 Karma Points
+🌸 Completed 0 tasks today
+✅ Completed 0 tasks so far
 
 <!--
 **Maniezzo1/Maniezzo1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
